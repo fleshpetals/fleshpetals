@@ -9,7 +9,7 @@
 </p>
 
 <img src="https://github.com/user-attachments/assets/da0156f1-c032-481c-a31b-213d1d52e0ea"  align="left" width="40%"> <p align="center">   ${\textsf{\color{#fe3837}GIVE ME SOMETHING TO BELIEVE IN}}$ <br> <img src="https://github.com/user-attachments/assets/a05f85d5-9f05-4277-ac4c-ea808825383b" height="40" width="240"/>
-<p align="center"> ${\textsf{\color{#fe3837}Lyra}}$ ㅤ/ㅤ<i> Micro </i> <br> 19 ♡ㅤShe⠀⸝⠀They ⸝ It ⸝ He <br> Soulbonder ⎯⎯⎯ Yumeshipper <br> ${\textsf{\color{#fe3837}Neutral}}$⎯⎯shipㅤ &&.ㅤ ${\textsf{\color{#fe3837}anti}}$⎯⎯harassment. <br> <img src="https://github.com/user-attachments/assets/a05f85d5-9f05-4277-ac4c-ea808825383b" height="40" width="240"/>   ${\textsf{\color{#fe3837}ALL THESE HANDS HAVE GOT A HOLD OF ME}}$
+<p align="center"> ${\textsf{\color{#fe3837}Lyra}}$ ㅤ/ㅤ<i> Micro </i> <br> 19 ♡ㅤShe⠀⸝⠀Her <br> Soulbonder ⎯⎯⎯ Yumeshipper <br> ${\textsf{\color{#fe3837}Neutral}}$⎯⎯shipㅤ &&.ㅤ ${\textsf{\color{#fe3837}anti}}$⎯⎯harassment. <br> <img src="https://github.com/user-attachments/assets/a05f85d5-9f05-4277-ac4c-ea808825383b" height="40" width="240"/>   ${\textsf{\color{#fe3837}ALL THESE HANDS HAVE GOT A HOLD OF ME}}$
 <br>
 
 <br>
