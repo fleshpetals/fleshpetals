@@ -27,7 +27,8 @@
 <p align="center"> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#fe3837}Credits.}}$ㅤღ </summary> All graphics belong to the Disney Tron: ARES discord decor colab. All files were available through the sources tab in the inspect console on chrome. The top banner was traced and edited to be useable. I do not own them <br>
   <br>Original code - moonchiip // I cant find their github now but i used their code to figure out the layout. Full credit goes to them!<br>
-  <br>Quote banner and SARK disc graphic - Me </details> <p align="center"> <img src="https://github.com/user-attachments/assets/a05f85d5-9f05-4277-ac4c-ea808825383b" height="40" width="240"/>
+  <br>Quote banner and SARK disc graphic - Me <br>
+  <br>This is an alt to my main GitHub! no I wont share my main unless I trust you. </details> <p align="center"> <img src="https://github.com/user-attachments/assets/a05f85d5-9f05-4277-ac4c-ea808825383b" height="40" width="240"/>
 <br> ${\textsf{\color{#fe3837}AND I KNOW WHAT I HAVE TO DO}}$
 
 <p align="center">
