@@ -11,11 +11,11 @@
 <img src="https://github.com/user-attachments/assets/35f310a0-dba6-43c2-b6af-9ccc5ff52f55" align="left" width="30%"> <p align="center">   ${\textsf{\color{#ff7bc2}I COULD DRINK YOUR BLOOD IF YOU LET ME, BABY}}$ <br> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/>
 <p align="center"> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}About Me.}}$ ⊹ ࣪ ˖ </summary> Micro / Lyra
-  <br>She/her they/them he/him it/its + neos
+  <br>She/her
   <br>19
-  <br>Genderfluid & bisexual
+  <br>Straight & cis
   <br>Studying forensics <br> </details> <details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Labels.}}$ㅤ⊹ ࣪ ˖ </summary> Neu-ship , anti-harrassment, neu-endo, pro-para, anti-contact, pro-recovery, jesterkin <br> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}HANG FROM YOUR RAFTERS, PATCHWORK AND PAISLEY}}$
+<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Labels.}}$ㅤ⊹ ࣪ ˖ </summary> Neu-ship , anti-harrassment <br> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}HANG FROM YOUR RAFTERS, PATCHWORK AND PAISLEY}}$
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/c95fe79e-1dca-43a4-a60d-bf5671c6b305" width="800" height="800%""/>
@@ -37,7 +37,7 @@
   <br>c+h is encouraged unless said otherwise
   <br>Don't include me in ship roleplays. I don't feel comfortable being put in those if i dont know you
   <br>I WILL match your tone if youre being annoying. Treat others how you'd like to be treated <br> </details> <details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Soulbonds and Kins}}$ㅤ⊹ ࣪ ˖ </summary> Soulbonds- RedSon, Stephen Strange, Shadow Milk cookie, Mystic Flour cookie, Clownpierce, Ordis, Kieran Valentine
+<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}Soulbonds and Kins}}$ㅤ⊹ ࣪ ˖ </summary> Favs- RedSon, Stephen Strange, Shadow Milk cookie, Mystic Flour cookie, Clownpierce, Ordis, Kieran Valentine
   <br> Kins- Dipper Pines, Black Sapphire cookie, Retry now!Miku, Komi Shouko, Seltzer cookie </details> <p align="center"> <img src="https://github.com/user-attachments/assets/6a9d751b-0337-4743-ba95-a0182ea3fbaa" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}CAN YOU READ BETWEEN THE MORSE CODE LINES?}}$
 
 <p align="center">
